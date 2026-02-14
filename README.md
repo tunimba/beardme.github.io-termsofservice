@@ -1,0 +1,1 @@
+# beardme.github.io-termsofservice
